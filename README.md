@@ -1,0 +1,1 @@
+# Lenovo-ThinkCentre-M715q-2nd-Gen-Hackintosh
